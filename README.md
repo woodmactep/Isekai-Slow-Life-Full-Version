@@ -1,0 +1,1 @@
+# Isekai-Slow-Life-Full-Version
